@@ -1,0 +1,2 @@
+# PrywatnaKamerka
+GitHub Pages
